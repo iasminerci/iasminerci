@@ -8,4 +8,4 @@
 
 ## ​✉️​Caso queira entrar em contato comigo:
 @0000109199500xsp@aluno.educacao.sp.gov.br
-![](https://tenor.com/pt-BR/view/cat-cutie-sad-sorry-puss-in-boots-gif-14112849)
+![](https://media1.tenor.com/m/Ywy2QP1soHEAAAAC/cat-cutie.gif)
